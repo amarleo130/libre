@@ -2,7 +2,7 @@
    
 Maraming Salamat Po Sa Mga Nag Download Sa App Nato Dipa Ito Yung Final Version Its Unofficially Version Muna Since Dipa Na Test Sa Lahat Kung My Bug Pa Or Wala At Dahil User Ka Ito Free Unlimited VOUCHER Para Sayo Claim Muna Habang Dipa Nawala.
 
-Click 3 Lines > Go To Claim Vouchers > Type Mo Ito > FREEVOUCH > Click Redeem > Kailangan Naka Connect Ang VPN App To Claim The Voucher.
+
 
 𝔍𝔬𝔦𝔫𝔢 𝔘𝔰 𝔗𝔢𝔩𝔢𝔤𝔯𝔞𝔪 𝔊𝔯𝔬𝔲𝔭𝔰:
 Porn Group👇
