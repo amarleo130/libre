@@ -1,6 +1,6 @@
 "𝙶𝚘𝚘𝚍 𝙳𝚊𝚢 𝙻𝚒𝚋𝚛𝚎 𝚅𝙿𝙽 𝙿𝚛𝚘𝚅𝟸 𝚄𝚜𝚎𝚛𝚜"
    
-Maraming Salamat Po Sa Mga Nag Download Sa App Nato Dipa Ito Yung Final Version Its Unofficially Version Muna Since Dipa Na Test Sa Lahat Kung My Bug Pa Or Wala At Dahil User Ka Ito Free Unlimited VOUCHER Para Sayo Claim Muna Habang Dipa Nawala.
+Maraming Salamat Po Sa Mga Nag Download Sa App Nato Dipa Ito Yung Final Version Its Unofficially Version Muna Since Dipa Na Test Sa Lahat Kung My Bug Pa Or Wala.
 
 
 
